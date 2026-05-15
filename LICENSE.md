@@ -1,4 +1,4 @@
-
+Enhance your Astrill VPN experience with secure App for Astrill VPN - end-to-end-encryption and free-trial, the #1 app. Includes end-to-end-encryption and free-trial for a safer
 
 
 
